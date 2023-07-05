@@ -1,2 +1,0 @@
-# phizlip.github.io
-Pages
